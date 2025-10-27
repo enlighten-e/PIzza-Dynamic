@@ -1,2 +1,0 @@
-# PIzza-Dynamic
-Showcase Talent 
